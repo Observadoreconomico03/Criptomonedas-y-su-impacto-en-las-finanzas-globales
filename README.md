@@ -1,1 +1,2 @@
 # Criptomonedas-y-su-impacto-en-las-finanzas-globales
+Las criptomonedas, lideradas por Bitcoin, han generado una transformación en el sistema financiero. Su volatilidad ofrece oportunidades de inversión, mientras que la falta de regulación ha frenado su expansión en algunos territorios. A pesar de esto, instituciones financieras tradicionales han comenzado a integrarlas en sus servicios. Aunque el debate sobre su futuro sigue, el impacto de las criptomonedas en las finanzas globales es innegable.
